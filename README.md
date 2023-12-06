@@ -5,7 +5,7 @@
 </a> 
 
 📧 cse.20.27@grad.uotechnology.edu.iq | 📱 (+964) 75123 85673 | 📍 Mosul, Iraq  
-🎂 22nd Jul 1995 | 🚻 Single
+🎂 Jul 1995
 
 ---
 
