@@ -13,9 +13,6 @@ Here is your updated portfolio content:
 
 ---
 
-## About Me
-
-Aspiring Ph.D. candidate in Mechatronics and Robotics, dedicated to advancing in mobile robotics and autonomous navigation. Eager to contribute innovative research to the scientific community.
 
 ---
 
